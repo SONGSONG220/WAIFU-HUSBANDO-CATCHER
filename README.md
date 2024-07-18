@@ -1,5 +1,4 @@
-![Image](https://graph.org/file/9901c2070cea11d1aa194.jpg)
-[![Deploy to Koyeb](https://www.koyeb.com/static/images
+![Image](https://graph.org/file/9901c2070cea
 ## WAIFU & HUSBANDO CATCHER 
 
 
